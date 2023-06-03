@@ -39,13 +39,17 @@ The things you can buy in most pet stores might just say "natural wood", then th
 - Other "fun stuff"
 - drinking- and fresh-food bowls
 
-### Bedding
+### Bedding and nesting material
 
 Dwarf hamsters like to dig tunnels! Well, some do, some don't, but in nature, they are excellent tunnel diggers. So you should fill your cage with **at least 25cm of bedding** (10"). So your cage will be **filled up halfway with bedding**.
 
 Try to find **de-dusted wooden bedding** if possible (not softwood) or **hemp bedding**.
 
 You generally want to mix your bedding a little bith with other things, more on that later!
+
+For nesting material you can use **Kapok-wool** or **SafeBed paper wool**.
+
+Your hamster will construct its nest on its own, so you can just spread the nesting material throughout the cage!
 
 ### The wheel
 
@@ -95,4 +99,41 @@ I use tiny tea-light holders made of glass. Like those:
 
 ![Picture of tea light holders made of glass](https://images-na.ssl-images-amazon.com/images/I/31iGRIFADKL._AC_.jpg)
 
-You can also use those (or bigger ceramic bowls) for giving your hamster some fresh food! More on that later!
+You can also use those (or bigger ceramic bowls) for giving your hamster some fresh food!
+
+## Food
+
+In the wild, hamsters eat mostly seeds, leaves and other **animal protein**.
+
+There's three types of food for hamsters:
+- base mixture of different seeds and dried leaves and animal protein
+- "variety food"
+- fresh food
+
+For 100gr of base mixture there should be about 15-20gr of animal protein!
+
+Because hamsters spend hours per day searching for their food, it's best to **spread the base food and mix it slightly with the bedding** so that they have to search a bit to find it!
+
+For the "variety food" you can use different different things like
+- Amaranth risps
+- Foxtail millet
+- Flax
+- Ears of wheat
+- dandelion roots
+
+You can stick those into the bedding so they have to reach a bit to get to them, but you can also just lay them down.
+
+Fresh food should be given daily, there's lists out there that show what is safe and not safe to feed. **Fruits in general should be avoided or given in very small quantities** since some dwarf hamsters can develop diabetes!
+
+Most food mixes in pet stores are not suitable, so it's best to look online for those separate components. I don't know which online stores to suggest because I only know German ones 😅
+
+Because hamsters like to stash their food, it's important to check every few days to remove any fresh food that might start to rot.
+
+
+## Cleaning and changing the cage
+
+Surprisingly you might not even have to clean your cage at all! Dwarf hamsters use their poop to mark their territory, so if you remove it that's a form of stress. You could clean up the peeing-corner, but for most dwarf hamsters they pee so little that it evaporates pretty quickly!
+
+They also get used to their own scent very quickly, so you shouldn't remove any bedding if possible!
+
+You also shouldn't really change up the cage too much because it can cause a lot of stress to the hamster. So once you set up everything properly you can mostly just leave everything as it is!
