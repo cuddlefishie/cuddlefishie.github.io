@@ -8,7 +8,7 @@ Here some general guidelines first, then we'll look at cages, interior decoratio
 
 Hamsters are loners, don't keep more than one! They are doing fine alone :) In fact, hamsters can get pretty brutal when they are kept in company for too long..
 
-Hamsters are clumsy and don't have a feeling for height (they live on the ground or underground in the wild). So the **maximum fall height anywhere in the cage should not be more than 10cm**.
+Hamsters are clumsy and don't have a feeling for height (they live on the ground or underground in the wild). So the **maximum fall height anywhere in the cage should not be more than 10cm** (4").
 
 When hamsters are in danger they **try to flee**. This is important to know, because if you have some items in the cage where your hamster can get the hands or feet stuck in, they might panic and **gnaw off their body parts to escape!** There is no danger your cage, but to avoid those situations, make sure they can't get stuck. That means any bridges or hideouts can't have too wide gaps or be made of material where their paws can get stuck.
 
