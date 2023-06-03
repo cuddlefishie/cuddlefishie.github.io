@@ -26,7 +26,7 @@ Or [another one](https://www.amazon.de/dp/B01HMLFYWS/) or [another one](https://
 
 First things first, do not use any objects in the cage that are made of softwood. **Do not use sooftwood, instead use birch, poplar or beech!**. Softwood contains oils that are toxic to most animals, including hamsters!!
 
-Also **any heavy objects must be standing on poles or otherwise secured!!**. Hamsters like to dig tunnels, if they dig under a heavy object, the tunnel might give in and the hamster could still be inside!
+Also **any heavy objects must be standing on pillars or otherwise secured!!**. Hamsters like to dig tunnels, if they dig under a heavy object, the tunnel might give in and the hamster could still be inside!
 
 The things you can buy in most pet stores might just say "natural wood", then they are probably made of softwood. So it's probably better to buy online than in local stores!
 
@@ -36,7 +36,8 @@ The things you can buy in most pet stores might just say "natural wood", then th
 - sand bath
 - chambered house
 - hiding spaces
-- tiny water and fresh-food cups
+- Other "fun stuff"
+- drinking- and fresh-food bowls
 
 ### Bedding
 
@@ -76,4 +77,22 @@ The chambered house should have **at least 3 chambers**. Again, make sure it's n
 
 Here you can get creative :)
 
-A hamster should have at least three hiding places. You can buy ceramic houses
+A hamster should have at least three hiding places. You can buy ceramic houses, houses out of wood, pieces of cork etc. Just make sure they can't get stuck and the material is safe!
+
+Also if the hide-out is too heavy, make sure to support them with pillars.
+
+You can fill one of the hideouts with **maize-granulate, which they can use to do their own mani- and pedicure!**
+
+### Other fun stuff
+
+You can get twigs or tunnels (some hamsters dig tunnels themselves, so they might not really use them at all), again just make sure they are safe, but if they can provide enrichment for your hamster, that's great :)
+
+### Drinking and fresh-food bowls
+
+Because in the wild hamsters drink from ponds they should have a **small drinking bowl**! Drinking bottles require bad posture for drinking!
+
+I use tiny tea-light holders made of glass. Like those:
+
+![Picture of tea light holders made of glass](https://images-na.ssl-images-amazon.com/images/I/31iGRIFADKL._AC_.jpg)
+
+You can also use those (or bigger ceramic bowls) for giving your hamster some fresh food! More on that later!
